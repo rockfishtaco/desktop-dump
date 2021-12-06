@@ -1,1 +1,1 @@
-# desktop-dump// i would like to have a website with the tools for a chef to use. an updated website that collects all needed things at the fingertips / scaling,geo location seasonality and algorithims for menu design. a one touch with maybe four catagories for access to daily needs of a chef. a nutritional breakdown of foods and labeling capabilities, suggested packaging and a menu design tool for wording etc. try the shift down management system which can be trademarked and implimented throughout the industry.
+Spring clean in December 
